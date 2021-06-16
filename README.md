@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT-specialists recruiting
 - I have confirmed experience in full-circle recruitment
 - 💞️ Fell free to communicate me ;)
-- 📫 How to reach me ... - in process
+- 📫 Feel free to reach me - svetab05@gmail.com / duzhaia@tecforce.ru
 
 <!---
 SveDuzh/SveDuzh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
